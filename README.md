@@ -7,7 +7,7 @@
 
 <p align="left"> <a href="https://twitter.com/sankeerthana" target="blank"><img src="https://img.shields.io/twitter/follow/sankeerthana?logo=twitter&style=for-the-badge" alt="sankeerthana" /></a> </p>
 
-- 📫 How to reach me **sankeerthanaalapati@gmail.com**
+- 📫 How to reach me ****hemasankeerthana9@gmail.com****
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
